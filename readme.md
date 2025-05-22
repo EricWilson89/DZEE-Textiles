@@ -1,4 +1,4 @@
-![DZEE Textiles Logo]([https://example.com/logo.png](https://dzeeusa.com/media/logo/stores/1/DZEE_Logo.png))
+![DZEE Textiles Logo](https://dzeeusa.com/media/logo/stores/1/DZEE_Logo.png))
 
 # **Elevate Your Hospitality Experience with DZEE Textiles**
 
