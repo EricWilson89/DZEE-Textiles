@@ -1,4 +1,4 @@
-![DZEE Textiles Logo](https://dzeeusa.com/media/logo/stores/1/DZEE_Logo.png))
+![DZEE Textiles Logo](https://media.licdn.com/dms/image/v2/D560BAQEbCxtKj2jL0w/company-logo_200_200/company-logo_200_200/0/1733414613773/dzeetextilesllc_logo?e=2147483647&v=beta&t=90CDHL6RoiC6salwirJ7INrC99eL_q9OEhWS9ef0rYA)
 
 # **Elevate Your Hospitality Experience with DZEE Textiles**
 
